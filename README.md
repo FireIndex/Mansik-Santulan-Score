@@ -1,1 +1,0 @@
-# Mansik-Santulan-Score
